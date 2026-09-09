@@ -1,5 +1,4 @@
-
-
+Joás Ryan
 Olá! Eu sou Joás Ryan 👋
 
 🎓 Estudante de Ciência da Computação 💻 Em formação na área de Desenvolvimento de Software 🚀 Buscando uma oportunidade para ingressar no mercado de tecnologia e desenvolver minha carreira profissional.
